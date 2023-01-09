@@ -14,7 +14,7 @@ NIM: 312210326
 
 <p align="center"
 
-**DOKUMENTASI VIDEO DAN PDF**
+**LINK DOKUMENTASI VIDEO DAN PDF**
 
 <p align="center"
 
